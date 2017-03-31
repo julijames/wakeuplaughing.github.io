@@ -1,2 +1,2 @@
-# github.io
+# wakeuplaughing.github.io
 Wake Up Laughing
